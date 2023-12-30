@@ -1,7 +1,7 @@
 # Rise of Kingdoms Hack
 Get unlimited Rise of Kingdoms Gems for free
 
-[CLICK HERE TO GO TO GENERATOR PAGE](https://mobilegamespot.com/2019/12/10/rise-of-kingdoms-hack/)
+[CLICK HERE TO GO TO GENERATOR PAGE](https://goldenloader.com/riseofkingdoms)
 
 ## Rise of Kingdoms Cheat Info
 
